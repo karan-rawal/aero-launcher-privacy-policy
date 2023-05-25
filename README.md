@@ -20,4 +20,4 @@ We reserve the right to update or modify this privacy policy at any time. Any ch
 
 Contact Us:
 
-If you have any questions or concerns regarding this privacy policy or the practices of the App, please contact us at [your contact email or support channel].
+If you have any questions or concerns regarding this privacy policy or the practices of the App, please contact us at kr14nov@outlook.com.
